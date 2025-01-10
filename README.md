@@ -14,3 +14,5 @@ Meu nome é Bruno Rocha Silva e estou cursando Adm Tech na Inteli. A seguir um p
 - [Linkedin](https://www.linkedin.com/in/bruno-rocha-silva-663860291?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - bruno.silvaextra@gmail.com
 
+## Buddy
+- Sendo Auxíliado nessa caminhada pelo veterano Vinícius Savian
